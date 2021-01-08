@@ -31,6 +31,8 @@ I recently discovered lego cooking video on yt and have been addicted to them si
 - [ ] Live in Europe (Italy or a Nordic country)
 - [ ] See the Northern Lights
 - [ ] Get super good a boxing  
-- [ ] Hopefully get a superpower that lets me eat my heart out w/o gaining weight!
+- [ ] Hopefully get a superpower that lets me eat my heart out w/o gaining weight!  
+
+[click here for surprise](/surprise/surprise.md)
 
 [Back to top](#abcde)
